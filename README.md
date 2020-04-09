@@ -1,4 +1,4 @@
-There was a tall young woman who lived in a parka.  
-She had so many cats & plants, they were overrunning her laundry room;  
-She gave them some MEAT without any sauce;  
-Then pruned them all soundly and cloaked them in darkness.
+There was an old woman who lived in a shoe.  
+She had so many children, she didn’t know what to do;  
+She gave them some broth without any bread;  
+Then whipped them all soundly and put them to bed.  
