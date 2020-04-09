@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was a young woman who lived in a Taco Bell.  
+She had so many tacos, that she started to turn into one;  
+She gave them some care, which made them taste good;  
+Then she would eat them all, and not give any of them away.  
