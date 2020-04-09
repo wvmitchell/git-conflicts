@@ -1,4 +1,4 @@
-There was an young woman who lived in a potato.  
-She had so many CATS, she didn’t know what to do;  
+There was an tall young woman who lived in a shirt.  
+She had so many cats & plants, they were overrunning her laundry room;
 She gave them some MEAT without any sauce;  
-Then sang to them all soundly and put them to bed.  
+Then pruned them all soundly and put them to bed.  
