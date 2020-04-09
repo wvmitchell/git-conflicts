@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was an old bunny who lived in a fence.  
+She had so many children, they were hared to keep track of;  
+She gave them some grass without any carrots;  
+Then snuggled them all soundly and put them in a hole.  
